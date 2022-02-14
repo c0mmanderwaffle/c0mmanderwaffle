@@ -1,0 +1,4 @@
+-Hi, I’m @c0mmanderwaffle
+- I’m interested in Crypto, NFTs, Tech, guns and most importantly computer science (python)
+- I’m currently learning python
+-I’m looking to collaborate on anything really i see something i like i try to help
